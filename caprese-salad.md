@@ -7,7 +7,6 @@
 - Balsamic vinegar (optional)
 - Salt, to taste
 - Freshly ground black pepper, to taste
-teehee
 
 ### Instructions:
 
